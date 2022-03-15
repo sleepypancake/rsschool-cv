@@ -1,1 +1,1 @@
-## RS-School CV - Brikun Anastasia
+# [Anastasia Brikun -CV](https://sleepypancake.github.io/rsschool-cv/cv)
